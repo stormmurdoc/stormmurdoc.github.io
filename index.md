@@ -15,3 +15,7 @@ Dwight Schultz ist mit der ehemaligen Schauspielerin Wendy Fulton verheiratet un
 * psychisch labile Persönlichkeit Rollen
 
 > Jedes Gestern ist nur ein Traum und jedes Morgen nur eine Vision. Also lebt das Heute so gut ihr könnt, dann wird das Gestern zu einem Traum des Glücks und jeder Morgen zu einer Vision der Hoffnung. - Gefunden auf: [https://www.myzitate.de/h-m-murdock](https://www.myzitate.de/h-m-murdock)
+
+<img src="https://de.wikipedia.org/wiki/Dwight_Schultz#/media/Datei:Dwight_Schultz_2.jpg"/>
+
+Von Corey Bond from United States - Dwight Schultz, CC BY-SA 3.0, [Quelle](https://commons.wikimedia.org/w/index.php?curid=2559284)
