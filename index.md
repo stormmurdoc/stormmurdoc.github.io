@@ -13,3 +13,5 @@ Dwight Schultz ist mit der ehemaligen Schauspielerin Wendy Fulton verheiratet un
 * Synchronsprecher
 * Serienheld
 * psychisch labile Persönlichkeit Rollen
+
+> Jedes Gestern ist nur ein Traum und jedes Morgen nur eine Vision. Also lebt das Heute so gut ihr könnt, dann wird das Gestern zu einem Traum des Glücks und jeder Morgen zu einer Vision der Hoffnung. - Gefunden auf: [https://www.myzitate.de/h-m-murdock](https://www.myzitate.de/h-m-murdock)
