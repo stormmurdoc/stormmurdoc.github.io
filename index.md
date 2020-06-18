@@ -7,3 +7,9 @@ Sehr oft wird Dwight Schultz als psychisch labile Persönlichkeit besetzt.
 Dwight Schultz ist mit der ehemaligen Schauspielerin Wendy Fulton verheiratet und hat eine Tochter.
 
 [Quelle: Wikipedia](https://de.wikipedia.org/wiki/Dwight_Schultz)
+
+## Charaktereigenschaften
+
+* Synchronsprecher
+* Serienheld
+* psychisch labile Persönlichkeit Rollen
