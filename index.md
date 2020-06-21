@@ -14,6 +14,7 @@ Dwight Schultz ist mit der ehemaligen Schauspielerin Wendy Fulton verheiratet un
 * Serienheld
 * psychisch labile Persönlichkeit Rollen
 
+> 'Ich hab' genug von deinem Gequatsche, Murdock.'Murdock: 'Dann stell dir vor wie's mir geht, ich hör das den ganzen Tag.'
 > Jedes Gestern ist nur ein Traum und jedes Morgen nur eine Vision. Also lebt das Heute so gut ihr könnt, dann wird das Gestern zu einem Traum des Glücks und jeder Morgen zu einer Vision der Hoffnung. - Gefunden auf: [https://www.myzitate.de/h-m-murdock](https://www.myzitate.de/h-m-murdock)
 
 <img src="https://upload.wikimedia.org/wikipedia/commons/thumb/e/e9/Dwight_Schultz_2.jpg/450px-Dwight_Schultz_2.jpg"/>
